@@ -3,8 +3,13 @@
 
 ![Image alt](https://github.com/a9995165530-lang/MEGA-UNLOCER/blob/main/Без%20названия152_20251116213001.png)
 
-мы в телеграмме
 
-![Image alt](https://github.com/a9995165530-lang/s4ff/blob/main/IMG_20251121_232929_983.jpg)
+
+
+
+
+
+
+мы в телеграмме
 
 https://t.me/megaunloker
